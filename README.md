@@ -1,4 +1,5 @@
-## https://itunes.apple.com/app/apple-store/id917932200?pt=39040802&ct=Media1GIFV2&mt=8
+## <img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/05ec9986-1a2a-4ed8-b871-c52f46de987b" />
+
 
 
 
@@ -10,12 +11,12 @@
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 🔭 I’m currently working on ... Voice Acting
+- 🌱 I’m currently learning ... English
+- 👯 I’m looking to collaborate on ... Everything
+- 🤔 I’m looking for help with ... Sonic!
+- 💬 Ask me about ... Pokemon!
+- 📫 How to reach me: ... Fly
+- 😄 Pronouns: ... He/Him Only!
+- ⚡ Fun fact: ... I am a homophobic creature :P (No Aroaces or Aromantics avallable)
 -->
