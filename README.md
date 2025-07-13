@@ -1,4 +1,5 @@
-## Hi there 👋
+## <img width="200" height="148" alt="image" src="https://github.com/user-attachments/assets/3360739c-5db4-4d57-8499-32d21867a326" />
+
 
 <!--
 **Sc0ttieTheKirbyFan/Sc0ttieTheKirbyFan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
